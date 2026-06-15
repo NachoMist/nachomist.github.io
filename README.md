@@ -1,1 +1,1 @@
-idk if i'm using the class updater wrong or wha but this shit don't work lmao
+i made this in 2016 when chef memes were relevant i swear
